@@ -6,6 +6,8 @@ from Türkiye (Turkey) And still trying to learn English
 I have a bad grammar so excuse me if my sentences sounds 
 strange!! 
 
+<img width="688" height="688" alt="Image" src="https://github.com/user-attachments/assets/47ae4751-a94f-4117-ac45-7b488f81a685" />
+
 Mutlifandom-
 FNF, alien stage(newbie), roblox, manhwa's (operation true love etc.) 
 skip and loafer, Vocaloid(a little bit ngl) 
