@@ -32,6 +32,7 @@ childish people(fr), animal abuser.
 int with me freely, I do not approach anyone with 
 judgment without fully knowing them!! >:33 
 
+(wip!!!!) 
 •.・゜゜・
 
 
