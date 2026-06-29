@@ -6,6 +6,10 @@ from Türkiye (Turkey) And still trying to learn English
 I have a bad grammar so excuse me if my sentences sounds 
 strange!! 
 
+heterosexual!¡ :P
+<img width="400" height="240" alt="Image" src="https://github.com/user-attachments/assets/70a4aa15-332a-4106-ba2e-c648035ded26" />
+
+
 As for myself: I am a musician, artist, and author/novelist(fanfic) in short. 
 
 
