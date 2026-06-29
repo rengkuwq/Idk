@@ -14,7 +14,8 @@ etc..
 
 DNI's!¡
 bully, pedophilia, racist, homophobic, Karen's, 
-childish people(fr), animal abuser. (◞ ‸ ◟ㆀ)
+childish people(fr), animal abuser. 
+(◞ ‸ ◟ㆀ)
 
 
 int with me freely, I do not approach anyone with 
