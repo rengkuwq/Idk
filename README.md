@@ -6,10 +6,6 @@ from Türkiye (Turkey) And still trying to learn English
 I have a bad grammar so excuse me if my sentences sounds 
 strange!!
 
-
-<img width="735" height="1014" alt="Image" src="https://github.com/user-attachments/assets/37264799-6e58-4286-a62f-5f1b3436e88e" />
-
-
 As for myself: I am a musician, artist, and author/novelist(fanfic) in short. 
 
 
