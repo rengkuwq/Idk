@@ -6,6 +6,10 @@ from Türkiye (Turkey) And still trying to learn English
 I have a bad grammar so excuse me if my sentences sounds 
 strange!!
 
+
+<img width="735" height="1014" alt="Image" src="https://github.com/user-attachments/assets/37264799-6e58-4286-a62f-5f1b3436e88e" />
+
+
 As for myself: I am a musician, artist, and author/novelist(fanfic) in short. 
 
 
@@ -13,9 +17,8 @@ As for myself: I am a musician, artist, and author/novelist(fanfic) in short.
 <img width="688" height="688" alt="Image" src="https://github.com/user-attachments/assets/47ae4751-a94f-4117-ac45-7b488f81a685" />
 
 Mutlifandom-
-FNF, alien stage(newbie), roblox, manhwa's (operation true love etc.) 
-skip and loafer, Vocaloid(a little bit ngl) 
-etc.. 
+FNF, alien stage(newbie), roblox, manhwa's, 
+The freak circus, Vocaloid, Tadc, etc. 
 
 
 DNI's!¡
