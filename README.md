@@ -44,7 +44,13 @@ judgment without fully knowing them!! >:33
 likes/love; Gaming, drawing, chatting, Dohwa(😛) 
 cats, books, music, electric guitars etc. 
 
-dislikes/hate; Arguing, dealing with childish people, ignorant people, gun games, being left unanswered.
+dislikes/hate; Arguing, dealing with childish people, ignorant people, gun games, being left unanswered. 
+
+... 
+<img width="735" height="465" alt="Image" src="https://github.com/user-attachments/assets/f0ee9224-1ae8-466f-8576-192e2cf45276" />
+... 
+
+wip (⁠⁠´⁠ω⁠｀⁠⁠)
 
 
 
