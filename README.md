@@ -34,6 +34,17 @@ judgment without fully knowing them!! >:33
 •✧･ﾟ: *✧･ﾟ:*
 
 
+<img width="720" height="404" alt="Image" src="https://github.com/user-attachments/assets/0461b93b-38cb-4005-af38-c38401a60414" />
+
+
 •.・゜-: ✧ :-　　
 
 •... 
+
+likes/love; Gaming, drawing, chatting, Dohwa(😛) 
+cats, books, music, electric guitars etc. 
+
+dislikes/hate; Arguing, dealing with childish people, ignorant people, gun games, being left unanswered.
+
+
+
