@@ -1,4 +1,6 @@
-About me I guess..? 
+<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/affc33e0-6405-4abe-88e8-da32fd139b7d" />
+
+About me I guess.? 
 ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆
 
 You can call me K.len, Silly or anything u want:33 I use he/him/she/her anything u want for ts too I don't mind :]
