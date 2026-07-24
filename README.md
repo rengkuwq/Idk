@@ -2,8 +2,8 @@
 
 About me I guess.? 
 ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆
-
-You can call me K.len, Silly or anything u want:33 I use he/him/she/her anything u want for ts too I don't mind :]
+ENG/TR!¡
+You can call me K.len, Silly or anything u want:33 pronounce I use; he/him/she/her anything u want for ts too I don't mind :]
 from Türkiye (Turkey) And still trying to learn English
 I have a bad grammar so excuse me if my sentences sounds 
 strange!!
